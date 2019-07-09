@@ -1,1 +1,1 @@
-# DHC
+# Welcome to Cryptocurrency Divi Hunter
